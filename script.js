@@ -30,7 +30,7 @@ Benim için tarif edemeyeceğim kadar değerli.
 
 Birlikte daha nice güzel anılar biriktirmek dileğiyle...
 
-Seni içime sığdıramayacak çok seviyorum.
+Seni içime sığdıramayacak kadar çok seviyorum.
 
 ❤️
 
